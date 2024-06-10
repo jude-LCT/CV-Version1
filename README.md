@@ -1,6 +1,6 @@
 ![firedrummer-imageonline co-2267111-modified](https://github.com/jude-LCT/CV-Version1/assets/172182130/10b55fc6-5af0-4db8-a200-3a1c516224ff)# Welcome to My GitHub!
 
-![firedrummer-imageonline co-2267111](https://github.com/jude-LCT/CV-Version1/assets/172182130/bd5d26ed-e487-40df-9619-289f559879bd)
+
 
 
 
